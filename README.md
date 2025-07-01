@@ -1,2 +1,2 @@
-# Literatuverweis2.0
+# Literaturverweis
 Literaturverweis Thesis Poster Nele J. Bätzel, Abteilung Sozialpsychologie
